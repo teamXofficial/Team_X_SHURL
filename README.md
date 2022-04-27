@@ -22,3 +22,4 @@
 # TG #1 @Team_X_Official
 # TG #2 @AlAlig
 # TG-канал #1 разраба : [ @TeamXofficial0 ](https://t.me/TeamXofficial0)
+# TG-канал #2 разраба : [@cursedsoft](https://t.me/cursedsoft)
